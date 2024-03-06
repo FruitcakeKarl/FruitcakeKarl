@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Karl and I am not a very skilled programmer, however, I try my best.
+- 👀 I’m interested in lots, programming duh but many fandoms, music, and baking.
+- 🌱 I’m currently learning python and HTML but plan to learn more in the future.
+- 💞️ I’m looking to collaborate on whatever I'm invited to, I want to expand my programming mind
+- 📫 How to reach me discord  and nothing else, all other socials are for my personal life. My discord is quietfruitcake.
+- 😄 Pronouns: You don't really need nor necessarily want to know but I am male, nothing special.
+- ⚡ Fun fact: Also nothing special. I'm gay but that's normal in this society. I like Fruitcake hence the username.
